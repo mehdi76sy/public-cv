@@ -1,7 +1,7 @@
 # Mehdi Akbari
 **Full Stack Developer**
 
-mehdi.ak76@hotmail.com · [LinkedIn](#) · [GitHub](#)
+[Email](mailto:mehdi.ak76@hotmail.com) · [LinkedIn](https://www.linkedin.com/in/mehdi-akbari-3697a3241/) · [GitHub](https://github.com/mehdi76sy)
 
 ---
 
